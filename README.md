@@ -30,8 +30,7 @@ y falsaciones.<br>
 Con el tiempo venceré,<br>
 puesto que no existe.<br>
 Ni existes tú, ni yo,<br>
-ni nosotros, ni vosotros,<br>
-ni ellos.<br>
+ni nosotros, ni vosotros, ni ellos.<br>
 
 Pienso, luego pienso,<br>
 y nada más.<br>
