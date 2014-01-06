@@ -62,8 +62,9 @@ que puede ser cierto o falso.<br>
 
 Dejadme libre<br>
 y limpio de polvo y paja.<br>
-
-
+<br>
+<br>
+<br>
 _Xavier Noria_<br>
-_Barcelona, Julio de 1996_<br>
+_Barcelona, Julio de 1996._<br>
 
