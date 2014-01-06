@@ -50,8 +50,8 @@ si preferís nombrarme,<br>
 no me asignéis dimensiones,<br>
 ni dirección,<br>
 ni sentido,<br>
-bajo ningún concepto<br>
-ni en figurado<br>
+bajo ningún concepto,<br>
+ni en figurado,<br>
 ni en recto.<br>
 
 No me clasifiquéis,<br>
