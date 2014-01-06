@@ -39,7 +39,7 @@ Patead las piedras si así lo deseáis.<br>
 Pisadlas, aplastadlas,<br>
 lanzadlas contra mí,<br>
 por centenares y por lustros.<br>
-No me creo nada<br>
+No me creo nada,<br>
 no soy objeto de nadie,<br>
 salvo del propio sujeto,<br>
 o quizás ni eso.<br>
